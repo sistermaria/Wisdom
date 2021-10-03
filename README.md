@@ -1,0 +1,2 @@
+# Wisdom
+Wisdom ;Bible
